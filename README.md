@@ -4,6 +4,6 @@
 
 ⠀⠀⠀_he_⠀⠀⠀⠀⠀⠀⠀♡⠀⠀⠀⠀⠀⠀⠀him
 
-⠀⠀⠀⠀⠀ bisex⠀⠀⠀⠀⠀⠀cis*guy*
+⠀⠀⠀⠀⠀ ⠀⠀bisex⠀⠀⠀⠀⠀⠀cis*guy*
 
 " But I will *gladly* join the **fight**! "
