@@ -1,8 +1,8 @@
 "　I may not live to see our glory　,　,　,　"
 
 🥂⠀ ⠀┈⠀⠀ ALEXANDER    HAMILTON .⠀
-
-⠀⠀⠀_he_⠀⠀⠀⠀⠀⠀⠀♡⠀⠀⠀⠀⠀⠀⠀him
- 　⠀⠀⠀⠀ ⠀⠀bisex⠀⠀⠀⠀⠀⠀cis*guy*
-
+<br>
+<br>⠀⠀⠀_he_⠀⠀⠀⠀⠀⠀⠀♡⠀⠀⠀⠀⠀⠀⠀him
+<br> 　⠀⠀⠀⠀ ⠀⠀bisex⠀⠀⠀⠀⠀⠀cis*guy*
+<br>
 "　But I will *gladly* join the **fight**!　"
