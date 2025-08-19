@@ -1,10 +1,10 @@
-"　I may not live to see our glory　,　,　,　"
+" I may not <ins>live</ins> to see our *glory* , , , "
 <br>
 <br>
-🥂⠀ ⠀┈⠀⠀ ALE<ins>XAND</ins>ER    HAMILTON .⠀
+🥂⠀ ⠀┈⠀⠀ ALEXANDER    HAMILTON .⠀
 <br>
-<br>⠀⠀⠀_he_⠀⠀⠀⠀⠀⠀⠀♡⠀⠀⠀⠀⠀⠀⠀him
+<br>⠀⠀⠀*he*⠀⠀⠀⠀⠀⠀⠀♡⠀⠀⠀⠀⠀⠀⠀him
 <br> 　⠀⠀⠀⠀ ⠀ bisex⠀⠀⠀⠀⠀⠀cis*guy*
 <br>
 <br>
-"　But I will *gladly* join the **fight**!　"
+" But I will *gladly* join the **fight**! "⠀ ⠀[: ) .](https://open.spotify.com/track/0NJWhm3hUwIZSy5s0TGJ8q?si=c837501d481a4df5)
