@@ -2,8 +2,8 @@
 
 🥂⠀ ⠀┈⠀⠀ ALEXANDER    HAMILTON .⠀
 
-⠀⠀ ⠀⠀ __he__        ♡        him
+⠀⠀⠀⠀⠀⠀__he__        ♡        him
 
-⠀⠀⠀⠀ ⠀⠀⠀  ⠀bisex   ⠀ cis*guy*
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀bisex   ⠀ cis*guy*
 
 " But I will *gladly* join the **fight**! "
